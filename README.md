@@ -1,1 +1,1 @@
-/assets/images/9bebdfc97f02599fb6829ab6d2b59f45/ca8ec97c78d4471f-b0/s2048x3072/cb60da5daf5451bc7b03a6010ddc83450da3f4a9.pnj
+![image](https://github.com/user-attachments/assets/f615329f-239a-4a02-a3e0-045d08feab92)
