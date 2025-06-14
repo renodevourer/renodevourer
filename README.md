@@ -5,4 +5,4 @@
 
   ### [ATABOOK](https://reiifayrezuu.atabook.org/) , [STRAWPAGE](https://reiivrynnzu.straw.page/) , [PATREON](https://www.patreon.com/c/reii_vrynnwaffls/about)
 If I have energy to code, I'll make this detailed. Soon.
-![image](https://github.com/user-attachments/assets/7449e31e-2bc3-4592-8b9f-43f3d0d6a6c9)
+![image](https://github.com/user-attachments/assets/ea2f0e11-85ca-4184-881d-0bef9fdd39d6)
