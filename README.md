@@ -1,3 +1,4 @@
 <p align="center">
-<img width="600" height="600" alt="4a7cf0d3-66e6-49bc-8bb5-09698ca2da16_removalai_preview" src="https://github.com/user-attachments/assets/db23b2b2-26ed-408b-89de-bec7b187df08" />
- ### [ATABOOK](https://reiifayrezuu.atabook.org/) , [STRAWPAGE](https://reiivrynnzu.straw.page/) , [PATREON](https://www.patreon.com/c/reii_vrynnwaffls/about) , [TIKTOK](https://www.tiktok.com/@renodevourer) (Do follow me please, i post my content there hihihii)
+<img width="1000" height="1000" alt="84d98fe5-2f09-45b8-aa95-e4e955b3f5e5" src="https://github.com/user-attachments/assets/ee7d1307-9492-47fa-b9ec-5582b6f3953f" />
+ 
+  ### [ATABOOK](https://reiifayrezuu.atabook.org/) , [STRAWPAGE](https://reiivrynnzu.straw.page/) , [PATREON](https://www.patreon.com/c/reii_vrynnwaffls/about) , [TIKTOK](https://www.tiktok.com/@renodevourer) (Do follow me please, i post my content there hihihii)
