@@ -1,5 +1,6 @@
 <p align="center">
-<gif width="800" height="339" alt="ezgif-3b59f44d2ff4bdec" src="https://github.com/user-attachments/assets/b08df12a-0dbd-4edf-9e75-c920e45c0d40" />
+<img width="800" height="339" alt="image" src="https://github.com/user-attachments/assets/cb1f82e4-0799-4761-ac59-1be79bd57ef2" />
+
  
   ### [ATABOOK](https://reiifayrezuu.atabook.org/) , [STRAWPAGE](https://reiivrynnzu.straw.page/) , [PATREON](https://www.patreon.com/c/reii_vrynnwaffls/about) , [TIKTOK](https://www.tiktok.com/@renodevourer) (Do follow me please, i post my content there hihihii)
 
