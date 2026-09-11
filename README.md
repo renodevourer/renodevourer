@@ -1,4 +1,4 @@
-<img width="700" height="339" alt="ezgif-3b59f44d2ff4bdec" src="https://github.com/user-attachments/assets/544dfa06-c7ba-4ecd-a11e-2effbaa31880" />
+<img width="700" height="300" alt="ezgif-3b59f44d2ff4bdec" src="https://github.com/user-attachments/assets/544dfa06-c7ba-4ecd-a11e-2effbaa31880" />
 
   ### [ATABOOK](https://reiifayrezuu.atabook.org/) , [STRAWPAGE](https://reiivrynnzu.straw.page/) , [PATREON](https://www.patreon.com/c/reii_vrynnwaffls/about) , [TIKTOK](https://www.tiktok.com/@renodevourer) (Do follow me please, i post my content there hihihii)
 
